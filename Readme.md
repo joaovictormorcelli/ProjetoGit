@@ -1,0 +1,1 @@
+Muito joia meu parceiro, aaaaa chidori
